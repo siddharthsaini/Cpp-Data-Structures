@@ -29,7 +29,7 @@ Who'll always be with you however and wherever you are,\
 Even if you're not on this planet or beyond any star.\
 \
 I apologise for sending this sooo late at eleven-o-two,\
-But hey, endings can often be beautiful too!\
+But hey, endings can often be beautiful too!
 
 ```bash
 Happy Birthday Pari, congratulations on turning 20!
