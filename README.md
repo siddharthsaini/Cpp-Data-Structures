@@ -20,7 +20,7 @@ But seriously, all jokes aside,\
 When anyone frowns,\
 You turn it upside down.\
 To you, it's just a regular vibe,\
-For us, issa-kawai-delight.\
+For us, issa-[kawai](https://i.pinimg.com/564x/74/6d/18/746d1889dcb9f80571f1290d4d8f0923.jpg)-delight.\
 \
 Now as your birthday is showing its end,\
 But before it does,\
